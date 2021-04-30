@@ -10,4 +10,5 @@ _mauricio_
 
 Las Naciones unidas son importantes, [(ONU)](https://www.un.org/es/),
 
-La imagen de un gato. ![gato](
+La imagen de un gato. ![gato](01_¿Qué-puedo-hacer-si-mi-gato-está-triste-.png)
+
