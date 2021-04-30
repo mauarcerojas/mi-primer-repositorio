@@ -10,6 +10,6 @@ _mauricio_
 
 Las Naciones unidas son importantes, [(ONU)](https://www.un.org/es/),
 
-Hermana Crocket
+Hermana Crocket, ![](HermanaClaire_SiervasDeLaCasaDeLaMadre_220920.jpg)
 
 
